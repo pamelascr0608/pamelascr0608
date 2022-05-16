@@ -11,7 +11,6 @@ I am Pâmela, a Information Systems Student, enthusiast of front-end and mobile 
 
 - ⚡ Fun fact: The Last of Us is my favorite game ever!
 
-- &#9989; Open to new job opportunities.
 
 You can find me here:
  
